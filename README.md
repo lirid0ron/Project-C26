@@ -1,0 +1,1 @@
+A revelation I made during the Covid lockdown is microwave mug cakes. They're stupid-easy to make, pretty delicious, and super fun!
